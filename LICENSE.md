@@ -1,4 +1,4 @@
-# 
+# exclusive Adobe Photoshop para PC ejecutor es el mejor Adobe Photoshop para PC ejecutor con acciones automatizadas y simulación de tela. Seguro, confiable y optimizado para el
 
 
 
